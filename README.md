@@ -11,3 +11,15 @@ Server : 김현석
 Layout : 김재연  
 
 ## 세부 내용  
+![image](https://user-images.githubusercontent.com/53139890/116337933-e550f600-a815-11eb-816a-a89abd101599.png)  
+  
+  
+![image](https://user-images.githubusercontent.com/53139890/116337975-f8fc5c80-a815-11eb-93f8-94349b04869b.png)  
+  
+  
+![image](https://user-images.githubusercontent.com/53139890/116338032-14fffe00-a816-11eb-8a7a-9348746e4f17.png)  
+  
+
+![image](https://user-images.githubusercontent.com/53139890/116338112-319c3600-a816-11eb-93ca-216b25251d4c.png)
+  
+![image](https://user-images.githubusercontent.com/53139890/116338137-3e208e80-a816-11eb-9e90-db71bfbb8204.png)
